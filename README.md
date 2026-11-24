@@ -10,7 +10,7 @@ A [make.fun](https://make.fun/bounty/u-zeroxfive-the-funniest-sick-day-excuse-37
 
 > I threw my back out lifting nothing and now I can't get off the floor, so I'm calling in sick from down here.
 
-Why it lands: a thrown-out back is half-believable to any boss, "lifting nothing" is a fresh twist on the worn sick-day excuse, and the payoff ("calling in sick from down here") arrives on the last words — in the voice of a real person texting from the floor. At 115 characters it is short, which wins the size tie-break.
+Why it lands: a thrown-out back is half-believable to any boss, "lifting nothing" is a fresh twist on the worn sick-day excuse, and the payoff ("calling in sick from down here") arrives on the last words — in the voice of a real person texting from the floor. At 109 characters it is short, which wins the size tie-break.
 
 ## How it works
 
